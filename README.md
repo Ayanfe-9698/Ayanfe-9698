@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning data analytics
 - 💞️ I’m looking to collaborate on data analytics becase i'm a beginner
 - 📫 How to reach me ig@ayanfe_9698
-- 😄 Pronouns: miss
+- 😄 Pronouns: She/Her
 - ⚡ Fun fact: i'm a makeup artist snd a hair stylist
 
 <!---
